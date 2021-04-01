@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ArcAniOms
+- 👀 I’m interested in lot of things
+- 🌱 I’m currently learning basic code
+- 📫 Twitter: @ArcAniOms
